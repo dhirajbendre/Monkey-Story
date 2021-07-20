@@ -1,0 +1,1 @@
+Once upon a time there was brave tailor .He went to sell his handmade caps to a village. After selling few caps he slept near one big banyan tree. When he woke up he saw that all caps were missing. 
